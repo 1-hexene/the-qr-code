@@ -1,4 +1,4 @@
-# Stand-up Comed Club
+# Stand-up Comedy Club
 
 **新南脱口秀俱乐部 - 群聊二维码**
 
